@@ -1,4 +1,4 @@
-# 
+# Personalizado leverage trading bot scripts para Mac OS | Instantáneo leverage trading bot scripts para PC Windows. Con arbitraje triangular y ejecución de alta frecuencia — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
